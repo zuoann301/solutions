@@ -1,11 +1,6 @@
 # 大厂信息化解决方案
 
-加【企业信息化解决方案】QQ群：365022328
-
-方案之星
-![方案之星](https://gitee.com/zuoann/soluthon1500/raw/master/x.jpg "x.jpg")
-
-
+加QQ：489520785
 
 
 
